@@ -38,4 +38,6 @@ For additional security, consider using a reputable VPN and always encrypt sensi
 
 *Disclaimer: This article is for informational purposes only. Purchasing or selling illegal goods or services on darknet markets is illegal and can result in severe legal penalties.*
 
-Update:  Sunday 14 September 2025
+
+
+Update:  18 September 2025
